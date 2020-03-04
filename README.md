@@ -2,4 +2,4 @@
 
 **Part 1** : https://youtu.be/VbeJfe90Yn8
 
-**Part 2** : Recording done, will be uploaded after editing.
+**Part 2** : https://youtu.be/B9AUWpwqvQc
